@@ -1,11 +1,17 @@
 # English as a Second Language #
 
-## Ideas ##
+## Places to get lesosn ideas ##
 - Take different parts of speech in existing text and replace it with multiple
   choice answers
   - Project Gutenberg texts
   - News sites
-    - http://www.cnn.com/2013/03/15/health/irpt-truck-driver-dances-weight/
+
+## Lesson ideas ##
+- http://www.cnn.com/2013/03/15/health/irpt-truck-driver-dances-weight/
+- The brains of the animal kingdom - http://tinyurl.com/d7hzrba
+- Iceland baffled by Chinese plans for a golf resort -
+  http://tinyurl.com/afv68op
+- iPad thief meets his match in SF principal - http://tinyurl.com/bwsf3o6
 
 ## Links ##
 - http://en.wikipedia.org/wiki/Commonly_misspelled_words
