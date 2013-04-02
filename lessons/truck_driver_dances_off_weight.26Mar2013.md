@@ -1,4 +1,4 @@
-# Exploring The Food Capital of Ireland (Cork) #
+# Truck Driver Dances Off Weight #
 
 ## Link ##
 http://www.cnn.com/2013/03/15/health/irpt-truck-driver-dances-weight/
