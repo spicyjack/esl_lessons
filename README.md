@@ -15,6 +15,9 @@
 - Ancient Kingdoms in Land of War - http://tinyurl.com/bp28bn7
 - Why's That Taxi on the Stairs? You're in Odessa - http://tinyurl.com/cz8dw5v
 - The Way I Work: Ken Grossman, Sierra Nevada - http://tinyurl.com/ce2zv55
+- Hocus-Pocus 101: School of Magic - http://tinyurl.com/brwrgo6
+- Forget Gold, the Gourmet-Cupcake Market is Crashing -
+  http://tinyurl.com/c6ha3m9
 
 ## Links ##
 - http://en.wikipedia.org/wiki/Commonly_misspelled_words
