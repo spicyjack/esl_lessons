@@ -7,17 +7,25 @@
   - News sites
 
 ## Lesson ideas ##
-- http://www.cnn.com/2013/03/15/health/irpt-truck-driver-dances-weight/
 - The brains of the animal kingdom - http://tinyurl.com/d7hzrba
-- Iceland baffled by Chinese plans for a golf resort -
-  http://tinyurl.com/afv68op
 - iPad thief meets his match in SF principal - http://tinyurl.com/bwsf3o6
 - Ancient Kingdoms in Land of War - http://tinyurl.com/bp28bn7
-- Why's That Taxi on the Stairs? You're in Odessa - http://tinyurl.com/cz8dw5v
 - The Way I Work: Ken Grossman, Sierra Nevada - http://tinyurl.com/ce2zv55
 - Hocus-Pocus 101: School of Magic - http://tinyurl.com/brwrgo6
 - Forget Gold, the Gourmet-Cupcake Market is Crashing -
   http://tinyurl.com/c6ha3m9
+- Quirks of Amsterdam - http://tinyurl.com/bvzb4rp
+- Storm Thorgerson obit - http://www.bbc.co.uk/news/uk-22210378
+- Escaping the train to Auschwitz -
+  http://www.bbc.co.uk/news/magazine-22188075
+- Hiking Through History with your Daughters - http://tinyurl.com/coxeyue
+- Largest empty mall in the world - http://tinyurl.com/dyvpqr4
+
+## Lessons that have already been created ##
+- Iceland baffled by Chinese plans for a golf resort -
+  http://tinyurl.com/afv68op
+- Why's That Taxi on the Stairs? You're in Odessa - http://tinyurl.com/cz8dw5v
+- http://www.cnn.com/2013/03/15/health/irpt-truck-driver-dances-weight/
 
 ## Links ##
 - http://en.wikipedia.org/wiki/Commonly_misspelled_words
